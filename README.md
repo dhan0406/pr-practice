@@ -16,7 +16,7 @@ HEY GUYS!!!! :)
 
 ## Person D:
 
-Person D should modify content here.
+Brianna Was Here
 
 ## Need inspiration?
 
